@@ -1,11 +1,11 @@
-#HELLO EVERYONE,
+😊HELLO EVERYONE,
 
-#My name is Adenike Ateloye
+❤My name is Adenike Ateloye
 
-#I am interested in Data Analytics ,Health informatics and Machine learning
+🐱‍I am interested in Data Analytics ,Health informatics and Machine learning
 
-#Eperience in POWER BI, EXCEL,TABLEAU, PYTHON AND SQL
+✨I have eperience in POWER BI, EXCEL,TABLEAU, PYTHON AND SQL
 
-#I'mlooking for Data Science Internships/Jobs
+👍I'mlooking for Data Science Internships/Jobs
 
-#My contact is oyetayoadedeji@gmail.com/ adenikeoyetayo@outlook.com
+👀My contact is oyetayoadedeji@gmail.com/ adenikeoyetayo@outlook.com
